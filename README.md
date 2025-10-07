@@ -22,8 +22,8 @@ To become Pakistan’s leading technology partner, delivering innovation, reliab
 
 ---
 
-## 📞 +971 52 203 4970 042-37883463
-- 🌐 malindtech.com 
+## 📞 +971 52 203 4970 
+- 🌐 [www.malindtech.com ](https://malindtech.com/)
 - 💼 https://www.linkedin.com/company/malindtech
 - 📧 hello@malindtech.com
 
